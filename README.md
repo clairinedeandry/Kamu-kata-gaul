@@ -1,1 +1,0 @@
-# Kamu-kata-gaul
